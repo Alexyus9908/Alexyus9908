@@ -5,4 +5,6 @@ Eu amo programar ❤️
 
 Eu amo minha professora 💚
 
+(estou sendo obrigado a me inscrever por nota 🤡)
+
 Insta: alexx__yus ⭐
